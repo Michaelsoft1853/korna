@@ -1,3 +1,1 @@
-# teremyag-sakso
-
 # KORNA.
